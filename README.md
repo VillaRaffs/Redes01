@@ -1,0 +1,6 @@
+![ativ ](https://github.com/user-attachments/assets/a1d229f4-7e78-4f14-9cf5-22e559e87fc1)
+![ativ 3 tri](https://github.com/user-attachments/assets/0f23cad9-25e0-4ec6-85a3-f1438b83d4a9)
+[Mac e IP.docx](https://github.com/user-attachments/files/17045626/Mac.e.IP.docx)
+[Ativ de Redes.docx](https://github.com/user-attachments/files/17045628/Ativ.de.Redes.docx)
+![Captura de tela 2024-09-05 094047](https://github.com/user-attachments/assets/21af6753-7ddd-4889-9bbb-1b1486105678)
+[1 ativ tds.pdf](https://github.com/user-attachments/files/17045630/1.ativ.tds.pdf)
